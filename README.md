@@ -1,1 +1,1 @@
-# .github
+# BANGKIT CAPSTONE TEAM
